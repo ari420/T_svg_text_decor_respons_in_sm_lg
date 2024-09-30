@@ -1,0 +1,1 @@
+# T_svg_text_decor_respons_in_sm_lg
